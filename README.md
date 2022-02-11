@@ -5,6 +5,4 @@
 
 - Available During: **3:30 - 19:30. (UCT)**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
 </p>
