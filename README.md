@@ -7,7 +7,7 @@
 
 - Available During: **3:30 - 19:30. (UCT)**
 
-
-![Screenshot 2022-02-11 183453](https://user-images.githubusercontent.com/68786705/153584756-be8bfbcb-2036-4fa1-902d-361300798a6d.png)
+![Screenshot 2022-02-15 002513](https://user-images.githubusercontent.com/68786705/153914918-b308de0f-b399-40c8-8dcb-8a70bda99ad2.png)
 </p>
+
 
