@@ -1,5 +1,5 @@
 <h1 align="center">Profile -Kawewisate-</h1>
-<h3 align="center">Welcome to my github profile. Most of my project are private As this github was made to be a data saving purpose.</h3>
+<h3 align="center">Most of my project are private As this github was made to be a data sharer.</h3>
 
 
 
